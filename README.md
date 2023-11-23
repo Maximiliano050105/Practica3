@@ -1,1 +1,1 @@
-# Practica3![image](https://github.com/Maximiliano050105/Practica3/assets/151798870/e6dc1c65-c324-4640-8acb-b429bd37cae0)
+# Practica3![image](https://github.com/Maximiliano050105/Practica3/assets/151798870/36b57b7b-b5be-4e12-9db8-663f3ab08e11)
